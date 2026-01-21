@@ -6,3 +6,7 @@ Unstable.
 Current version only includes opencode but it could theoritically work for any such programs and even with real users in a whiteboard if there's such a multi user whiteboard for podman to begin with.
 W.I.P.
 Probably won't work on your end.
+
+-------------------
+
+And now for a special message to the morons who works at youtube's trust and safety team. Punishing me for saying "All bilionaires are buddies with Epstein, change my mind" demonstrates two things: You guys at youtube are perverts protecting perverts. I hope Google goes bankrupt.
