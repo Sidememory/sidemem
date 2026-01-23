@@ -7,6 +7,3 @@ Current version only includes opencode but it could theoritically work for any s
 W.I.P.
 Probably won't work on your end.
 
--------------------
-
-And now for a special message to the morons who works at youtube's trust and safety team. Punishing me for saying "All bilionaires are buddies with Epstein, change my mind" demonstrates two things: You guys at youtube are perverts protecting perverts. You guys at youtube are brainless tormentors censoring for insignificant things like spending more than 12 hours connected. I hope Google goes bankrupt.
